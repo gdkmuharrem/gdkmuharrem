@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **gdk.muharrem@gmail.com**
 
-- 📄 Know about my experiences [https://www.muharremgedik.com](https://www.muharremgedik.com)
+- 📄 Know about my experiences [https://muharremgedik.com](https://muharremgedik.com)
 
 - ⚡ Fun fact **I am very brave**
 
